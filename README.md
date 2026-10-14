@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on SR Carehive Intern<br>👯 I’m looking to collaborate on Full stack projects<br>🌱 I’m currently learning AI/ML BASICS<br>💬 Ask me about WEB DEVELOPMENT AND DESIGN<br>⚡ Fun fact TO KNOW THE FACT JUST CONTACT ME :)
+🔭 I’m currently working As Intern at CDOE SEHU<br>👯 I’m looking to collaborate on Full stack projects<br>🌱 I’m currently learning AI/ML BASICS<br>💬 Ask me about WEB DEVELOPMENT AND DESIGN<br>
 
 
 ## 🌐 Socials:
